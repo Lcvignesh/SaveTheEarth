@@ -12,3 +12,7 @@ With Mjolnir once again in my grasp and the admiration and possible love of Jane
 
 
 I can call down lightning and thunder at will and utilize them like a blacksmith uses his tools to work iron and steel—bending and shaping them into weapons
+
+
+
+
